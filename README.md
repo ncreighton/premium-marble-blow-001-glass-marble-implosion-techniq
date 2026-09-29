@@ -1,0 +1,2 @@
+# premium-marble-blow-001-glass-marble-implosion-techniq
+Are you tired of forgetting exactly which color sequence and heat ramp produced that perfect implosion pattern?  This Notion template transforms your implosion practice from guesswork into a repeatable process. Track every variable—from color layering to annealing schedule—so you can systematically replicate your best work and learn from every fail
